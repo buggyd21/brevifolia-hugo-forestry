@@ -3,7 +3,7 @@ author = ""
 date = ""
 draft = true
 hero = ""
-title = "Ep 1. Awakening"
+title = "Ep 2. Awakening"
 type = "blog"
 
 +++
