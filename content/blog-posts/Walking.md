@@ -1,19 +1,59 @@
 ---
-title: Ep 1. Glitch
+title: Ep 1. A Glitch
 date: 2019-07-11T20:11:17.000+00:00
 type: blog
 author: ''
 hero: ''
 
 ---
-Then it is that I appreciate the beauty and the glory of architecture, which itself never turns in, but forever stands out and erect, keeping watch over the slumberers.
+Internet Kids – Series
 
-No doubt temperament, and, above all, age, have a good deal to do with it. As a man grows older, his ability to sit still and follow indoor occupations increases. He grows vespertinal in his habits as the evening of life approaches, till at last he comes forth only just before sundown, and gets all the walk that he requires in half an hour.
+<h1>Ep.1 – A Glitch</h1>
 
-But the walking of which I speak has nothing in it akin to taking exercise, as it is called, as the sick take medicine at stated hours,--as the swinging of dumb-bells or chairs; but is itself the enterprise and adventure of the day. If you would get exercise, go in search of the springs of life. Think of a man's swinging dumb-bells for his health, when those springs are bubbling up in far-off pastures unsought by him!
+The café was filled with people. Some were working, studying while others where socializing. The aroma of coffee and eggs filled the coffee shop on this warm spring morning. I would peak up causally from my book to simply see how things were in the shop. If it was busy, slow, just general curiosity. Everything was how it was and should be for a Tuesday. I took a sip from my coffee when suddenly a weird line shot across my vision… like a television static when the screen starts to go bad. It was weird but my eyes could be going bad. The day went on as usual. I finished my reading drank the rest of my coffee and went back to work.
 
-Moreover, you must walk like a camel, which is said to be the only beast which ruminates when walking. When a traveller asked Wordsworth's servant to show him her master's study, she answered, "Here is his library, but his study is out of doors.
+If you asked me what I did I honestly couldn’t tell you. I sat at a computer, looked at spreadsheets and pushed it along. My colleges and I had a typically speech act or script if you would.
 
-Perhaps we should be more susceptible to some influences important to our intellectual and moral growth, if the sun had shone and the wind blown on us a little less; and no doubt it is a nice matter to proportion rightly the thick and thin skin. But methinks that is a scurf that will fall off fast enough,--that the natural remedy is to be found in the proportion which the night bears to the day, the winter to the summer, thought to experience. There will be so much the more air and sunshine in our thoughts. The callous palms of the laborer are conversant with finer tissues of self-respect and heroism, whose touch thrills the heart, than the languid fingers of idleness. That is mere sentimentality that lies abed by day and thinks itself white, far from the tan and callus of experience.
+“Hi Jenn, how are you?” I would say to her.
 
-When we walk, we naturally go to the fields and woods: what would become of us, if we walked only in a garden or a mall? Even some sects of philosophers have felt the necessity of importing the woods to themselves, since they did not go to the woods. "They planted groves and walks of Platanes," where they took _subdiales ambulationes_ in porticos open to the air. Of course it is of no use to direct our steps to the woods, if they do not carry us thither. I am alarmed when it happens that I have walked a mile into the woods bodily, without getting there in spirit. In my afternoon walk I would fain forget all my morning occupations and my obligations to society. But it sometimes happens that I cannot easily shake off the village. The thought of some work will run in my head, and I am not where my body is,--I am out of my senses. In my walks I would fain return to my senses.
+“Oh fine and dandy, and yourself?” Doing well, I would reply. Blah blah blah kids, blah blah weather. The conversation had no sustenance but its how we operated and got along. They paid my bills so could I really complain if the only torture was meaningless small talk to show hey I don’t really care to know you but I’ll acknowledge you. The daily routine went on of looking at spread sheets and pushing that forward. The clock made it’s way to 5pm and the work day came to an end.
+
+“See you tomorrow.” Jenn said
+
+“Right, see you tomorrow.” I replied.
+
+We both left the workplace. I waited a few minutes to give her a head start leaving the building. No need pain myself with more robotic small talk than I typically do, right? That waiting period passed and I walked out making my way toward the elevator taking the 5th floor down to ground level. I walked up to my car a 2014 Toyota Prius, was great on gas… wasn’t the most comfortable. Either way, I hoped in and drove home I was only a mile away but I would get weird looks when I would ride my bike in. No need to make enemies or friends in a place you don’t care for. But I made it home, made dinner, and went for a walk and called it night. This was my routine day in and day out. I had the weekends off and I used that time to get things done around the house. Laundry, cleaning, house upkeep and so on. Was I happy? No, but I wasn’t sad I was just living. Life was stale nothing like the movies but that’s not what life is.
+
+The rest of the week came around and it was pretty much the same. A causal hello to Jenn and pushing spreadsheets with numbers and data. I kept seeing that weird line static coming across my sight though and it becoming more and more prominent. During my time off I went to the doctor and I got a prescription for glasses. They helped but when I would take them off I would see that line again and it was getting bigger it would remain in view longer, and I was getting worried. The doctor was baffled. He recommended that I get lazer eye surgery to fix the problem. I was all for it until I saw the cost of it all. Sadden by this I went back home that Sunday. When I woke the next morning and went into work I was called into HR.
+
+“Good morning how are you today?” Jenn asked.
+
+“I’m doing well. Yourself?” I replied. _I hope she gets to the point soon._
+
+“I know you’re busy so I’ll cut to the chase”
+
+_Oh, thank god_
+
+“It’s good news. We recently had a change in our insurance policy allowing vision to be fully covered. We recognized stairing at a screen all day isn’t the best for one’s eyes and coverage goes farther than a simple prescription to glasses. It now covers as far as lasik eye surgery up to $3,000 dollars.” Jenn says with enthusiasm. “Oh and if you need to take time off to take care of the surgery, go right ahead, I won’t doc it from your PTO or anything.” She says with a wink.
+
+“This is good Jenn, my eyes are not what they use to be. I’ll schedule an appointment for tomorrow.” I saw with a false tone of excitement. It’s not that I wasn’t grateful, I just did not feel like doing it.
+
+“Please, take all the time you… but the sooner the better.” She replied with a crooked smile.
+
+I went home that night, made dinner my regular pasta complemented with the pleasant dessert of ice cream. The beauty of the raspberry swirl was glistened by the frozen ice shards that sparkled from the light in the room. I passed out around my normal bedtime.
+
+…
+
+“Tripp! Tripp!!! Wake up!”
+
+SMACK
+
+“What the hell?!?” I woke to two people standing in front of me wearing some sort of body armor, they were twins one with a pink mohawk and the other with a lime green. We were on some vehicle, floating and we were driving away from another vehicle. They were shooting right above us.
+
+BOOM
+
+Smoke erupts from the the back end of our vessel as we go down.
+
+…
+
+I wake up in the middle of the night. Covered in sweat. It was about 2am. _I must be nervous about the surgery._ I got up and drank some water before going back to bed.
