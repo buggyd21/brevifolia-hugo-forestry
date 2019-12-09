@@ -1,6 +1,6 @@
 ---
 title: Ep 1. A Glitch
-date: 2019-07-11T20:11:17.000+00:00
+date: 
 type: blog
 author: ''
 hero: ''
