@@ -27,9 +27,6 @@ fields:
   label: type
   default: blog
   hidden: true
-- type: file
-  name: hero
-  label: Hero Image
 pages:
 - content/blog-posts/ep-1-awakening.md
 - content/blog-posts/Walking.md
